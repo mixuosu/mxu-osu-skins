@@ -19,3 +19,7 @@ note: I do not own any of these skins
 
 # [-+ Seoul v9 Personal Skin](https://www.mediafire.com/file/muj1vncr1msalgr/-+_Seoul_v9_Personal_Skin_Kirby.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-11/1574487708_screenshot7313.jpg)
+
+# [BubbleSkin20-10-09](https://drive.google.com/drive/folders/1oGiP2q8tG8RqxMJqTtChQpE_YyBMSS3o)
+![](https://i.imgur.com/vKlIp7M.jpg)
+
