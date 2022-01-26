@@ -2,7 +2,7 @@
 My most used skins, enjoy :)
 note: I do not own any of these skins
 
-# [- 《CMP》 Kitagawa Marin v1.0  『∞』 + mxu](https://www.mediafire.com/file/pi69qu4yq4mibzd/-_%25E3%2580%258ACMP%25E3%2580%258B_Kitagawa_Marin_v1.0__%25E3%2580%258E%25E2%2588%259E%25E3%2580%258F_%252B_mxu.osk/file)
+# [- 《CMP》 Kitagawa Marin v1.0  『∞』 + mxu](https://www.mediafire.com/file/he6agcjoq3v06n9/-+《CMP》+Kitagawa+Marin+v1.0++『∞』+++mxu.osk/file)
 ![](https://i.imgur.com/lIfxXvA.jpg)
 
 # [Rohulk 4.0 (Jup3KW edit)](https://www.mediafire.com/file/3vpg14a7m7mdh8m/Rohulk_4.0_%28Jup3KW_edit%29.osk/file)
